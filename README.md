@@ -12,7 +12,6 @@ of Engineering & Technology](https://bauet.ac.bd/)
 
 - 💬 Talk to me about JavaScript, React and Freelancing Opportunities etc.
  - 📫 Reach me at **shafriki.cse@gmail.com**  
- - 📫 Contact No: **+880 1786141015**  
 
 <br>
 <br>
